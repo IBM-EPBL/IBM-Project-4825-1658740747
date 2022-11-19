@@ -1,4 +1,1 @@
-VIDEO LIND :
-
-
-https://drive.google.com/drive/folders/1bO6PNjPhihvOM4mbpKiyMktGqQvjbh9d
+https://drive.google.com/file/d/1dfQ8Wa6PCyx2DWsPzaDwG95UuNtzksnG/view?usp=sharing
